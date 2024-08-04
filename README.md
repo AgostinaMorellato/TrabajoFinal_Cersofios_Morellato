@@ -1,3 +1,2 @@
 # Trabajo Final
-  Cersofios Sofía
-  Morellato Agostina
+  Cersofios Sofía - Morellato Agostina
